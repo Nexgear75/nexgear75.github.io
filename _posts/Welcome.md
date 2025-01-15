@@ -1,0 +1,89 @@
+---
+title: Welcome
+
+---
+
+# Welcome to Athens
+
+### Behaviour
+
+Greek people are often described as **warm**, **hospitable**, and **laid-back**. They value **personal relationships** deeply and are known for their generosity and friendliness, especially **towards guests and visitors**. Conversations can be animated, with a lot of **gestures and expressions**. In contrast, while the French are also warm and welcoming, their interactions may initially seem more **reserved** or **formal**, particularly with **strangers**.
+
+In Greece, punctuality is often seen more **flexibly**, and there’s a **relaxed approach** to time compared to the French, who tend to value **punctuality**, especially in professional or formal settings. Greeks also have a strong **sense of community**, and socializing in **public spaces** like squares or cafés is a vital part of their daily life.
+
+### Gastony habits
+
+Meals are often a **communal experience**, and sharing dishes is common. Greeks enjoy leisurely meals that can last for **hours**, accompanied by conversation and often some wine or **ouzo** (a traditional anise-flavored spirit).
+
+#### **Popular Greek dishes include:**
+
+**Souvlaki and Gyros**: Popular street foods featuring grilled meat, pita bread, and fresh vegetables.
+![tavern-tzanakis-santorini-greece11](https://hackmd.io/_uploads/ryPwy-Bvkg.jpg)
+
+**Moussaka:** A baked dish with layers of eggplant, minced meat, and béchamel sauce.
+![moussaka-4-FP](https://hackmd.io/_uploads/rJd_J-HDkg.jpg)
+
+**Horiatiki (Greek Salad):** Made with tomatoes, cucumbers, onions, olives, and feta cheese.
+![__opt__aboutcom__coeus__resources__content_migration__serious_eats__seriouseats.com__recipes__images__2017__08__20170814-greek-salad-vicky-wasik-8-84d7b60421bc47df8f5292ca3ffddd6f](https://hackmd.io/_uploads/B1SYkZBwJl.jpg)
+
+**Seafood:** Being a coastal nation, Greece offers a variety of fresh fish and seafood, often simply grilled with olive oil and lemon.
+![grilled-sardines2](https://hackmd.io/_uploads/rJ9Y1-Hwyx.jpg)
+
+## On site
+
+### Precise destination
+
+Our appartment is located in Marni 19 in the hyper-center of Athens.
+![SCR-20250115-jsor](https://hackmd.io/_uploads/BJGr7-rD1x.png)
+
+https://www.uniplaces.com/fr/accommodation/athens/617430
+
+Whitout **knowing it** we choose the same apartment as the previous student who went to Athens.
+
+We are at **44 minutes** far from our University. It's quite long but we know from previous students that we don't have much **class time**, so it's not a real problem for us.
+
+![SCR-20250115-jzmd](https://hackmd.io/_uploads/BkMkv-BD1x.jpg)
+
+Our University name is **West Attica** and it look like this : 
+
+![Bibliothek](https://hackmd.io/_uploads/B10z_bBv1g.jpg)
+
+### Key Info
+
+Population : 643 452 (2021) -> Angers : 157 175 (2021)
+Capital of Greece and bigger city of all the country
+39km2
+A rich history
+
+### How to get there
+
+Unfortunately we **can't take the train** because it will be to long so we take the plain the 19 febuary ! Here is the ticket ;)
+
+![SCR-20250115-khid](https://hackmd.io/_uploads/Hkay2-Hvyx.png)
+
+![SCR-20250115-khzl](https://hackmd.io/_uploads/SkoOhbrDyg.jpg)
+
+As you can see we will land far from the apartment so we need to pick up a taxy or something.
+
+### Student life
+
+### Good deals
+
+### What we want to discover
+
+
+
+## Predefine Topics
+
+Culture -> behaviour (done)
+Habits and custom -> gastronomy (done)
+The local/regional/entreprise (with sectors of activity, organisation and working confitions)
+
+## On the site
+
+Precise destination (city, university)
+Key info (population, gastronomy, interesting sites, wikipedia)
+How to get there (public transports on site) (why did we choose our way accomodation)
+Student life (Student association, volleyball ?)
+'good deals'
+
