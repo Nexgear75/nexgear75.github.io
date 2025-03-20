@@ -1,6 +1,6 @@
 ---
-title: Arrival in Athens
-authors: [Alex]
+title: Arrival in Athens (Alex)
+authors: Alex
 description: Accommodation and discoveries
 ---
 # Arrival in Athens
